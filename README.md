@@ -36,301 +36,329 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A chronicle, conteyning the liues of tenne emperours of Rome Wherin are discouered, their beginnings
+
+1. TO THE MOST EXcellent and vertuous Princeſſe, and our gratious ſouereigne Ladie Elizabeth, by the grace of GOD, of Englande, Fraunce, and Ireland, Queene: defender of the Chriſtian Faith. &c. Long life, with accompliſhment of all Godly deſires.
+
+1. ¶The prologue of the famous Syr Anthonie of Gueuara, Byſhoppe of Mondonnedo, preacher, chronicler, & counſellour to the Emperour Charles the fifth, vpon the life of tenne Emperours of Rome. (⸫) The Author proponeth.
+
 #####Body#####
 
-1. CHAP. I. Of foure renoumed Cities that periſhed and were ſubuerted in Spaine.
+1. The life of the good Emperour, Traiane Coceius, naturally a Spaniard, borne in the citie of Calize, compiled by ſyr Anthonie of Gueuara, Byſhoppe of Mondonnedo, preacher, chronicler, and counſellour vnto the Emperour Charles the fifth.
 
-1. CHAP. II. Of the countrie and birth of the Emperour Traiane.
+    _ CHAP. I. Of foure renoumed Cities that periſhed and were ſubuerted in Spaine.
 
-1. CHAP. III. Howe Traiane paſſed out of Spaine being a yong man, to goe into Italie.
+    _ CHAP. II. Of the countrie and birth of the Emperour Traiane.
 
-1. CHAP. IIII. Of the friendſhip and parentage that Traiane had with the Emperour Nerua.
+    _ CHAP. III. Howe Traiane paſſed out of Spaine being a yong man, to goe into Italie.
 
-1. CHAP. V. Howe Nerua was made Emperour, and adopted Traiane his ſonne.
+    _ CHAP. IIII. Of the friendſhip and parentage that Traiane had with the Emperour Nerua.
 
-1. THE VI. CHAP. Of the lawes that Traiane made, to the profite of the common wealth.
+    _ CHAP. V. Howe Nerua was made Emperour, and adopted Traiane his ſonne.
 
-1. CHAP. VII. ¶Of the noble and notable vertues that were in Traiane.
+    _ THE VI. CHAP. Of the lawes that Traiane made, to the profite of the common wealth.
 
-1. CHAP. VIII. ¶Of the proude and ſtately buildinges which Traiane made.
+    _ CHAP. VII. ¶Of the noble and notable vertues that were in Traiane.
 
-1. CHAP. IX. ¶Of ſome vices whereof Traiane was noted.
+    _ CHAP. VIII. ¶Of the proude and ſtately buildinges which Traiane made.
 
-1. CHAP. X. ¶Of the firſt warres that Traiane had againſt the Datians.
+    _ CHAP. IX. ¶Of ſome vices whereof Traiane was noted.
 
-1. CHAP. XI. ¶Howe Traiane triumphed of the Datians, and refourmed his common wealth.
+    _ CHAP. X. ¶Of the firſt warres that Traiane had againſt the Datians.
 
-1. CHAP. XII. ¶Of the ſeconde warres that Traiane had againſt the Datians.
+    _ CHAP. XI. ¶Howe Traiane triumphed of the Datians, and refourmed his common wealth.
 
-1. CHAP. XIII. Of the great buildings that Traiane made in the kingdome of Datia.
+    _ CHAP. XII. ¶Of the ſeconde warres that Traiane had againſt the Datians.
 
-1. CHAP. XIIII. Of the ſeconde entring of Rome by the Emperour Traiane, and the notable thing which he did in the ſame.
+    _ CHAP. XIII. Of the great buildings that Traiane made in the kingdome of Datia.
 
-1. CHAP. XV. Containing what Traiane did in Sicyl, in Africa, and in Spaine.
+    _ CHAP. XIIII. Of the ſeconde entring of Rome by the Emperour Traiane, and the notable thing which he did in the ſame.
 
-1. CHAP. XVI. Howe Traiane did paſſe out of Spaine, into Aſia, and the manner that he vſed in the warres.
+    _ CHAP. XV. Containing what Traiane did in Sicyl, in Africa, and in Spaine.
 
-1. CHAP. XVII. ¶Of the honourable titles that the Romaines ſent vnto Traiane, and of the earthquake of Antioche.
+    _ CHAP. XVI. Howe Traiane did paſſe out of Spaine, into Aſia, and the manner that he vſed in the warres.
 
-1. CHAP. XVIII. ¶Howe Traiane ſubdued Aſſyria, and what he did in Babylon.
+    _ CHAP. XVII. ¶Of the honourable titles that the Romaines ſent vnto Traiane, and of the earthquake of Antioche.
 
-1. CHAP. XIX. ¶Howe Traiane, after great trauaile to paſſe into the Indiaes, was conſtreined to retire.
+    _ CHAP. XVIII. ¶Howe Traiane ſubdued Aſſyria, and what he did in Babylon.
 
-1. CHAP. XX. ¶Howe Traiane comming from Aſia to triumph in Rome, was ſtaide by death in Sicyl.
+    _ CHAP. XIX. ¶Howe Traiane, after great trauaile to paſſe into the Indiaes, was conſtreined to retire.
 
-1. CHAP. I. ¶Of the linage from whence Adrian deſcended, and of the place and countrie where he was bred and nouriſhed.
+    _ CHAP. XX. ¶Howe Traiane comming from Aſia to triumph in Rome, was ſtaide by death in Sicyl.
 
-1. CHAP. II. Of ſome euill inclinations that poſſeſſed and had power in Adrian.
+1. ¶The life of the Emperour Adrian: Compiled by ſir Anthonie of Gueuara, Byſhoppe of Mondonnedo, Preacher, Chronicler, and Counſeller vnto the Emperour Charles the fift. (⸫)
 
-1. CHAP. III. Of the friends and enimies which Adrian had.
+    _ CHAP. I. ¶Of the linage from whence Adrian deſcended, and of the place and countrie where he was bred and nouriſhed.
 
-1. CHAP. IIII. Of the loue that the Emperour Traiane had vnto Adrian.
+    _ CHAP. II. Of ſome euill inclinations that poſſeſſed and had power in Adrian.
 
-1. CHAP. V. Of the care and ſolicitude of Adrian, to obteine the Empire.
+    _ CHAP. III. Of the friends and enimies which Adrian had.
 
-1. CHAP. VI. Howe at Traianes death Adrian was declared Emperour.
+    _ CHAP. IIII. Of the loue that the Emperour Traiane had vnto Adrian.
 
-1. CHAP. VII. Of his entrie into Rome.
+    _ CHAP. V. Of the care and ſolicitude of Adrian, to obteine the Empire.
 
-1. CHAP. VIII. ¶Of the good conditions and inclinations of Adrian.
+    _ CHAP. VI. Howe at Traianes death Adrian was declared Emperour.
 
-1. CHAP. IX. ¶Of the maner which Adrian vſed with the men of warre.
+    _ CHAP. VII. Of his entrie into Rome.
 
-1. CHAP. X. ¶Of the actes that Adrian did in Englande, Fraunce, and Spaine.
+    _ CHAP. VIII. ¶Of the good conditions and inclinations of Adrian.
 
-1. CHAP. XI. ¶Howe Adrian did paſſe into Aſia, and of the things that chaunced there.
+    _ CHAP. IX. ¶Of the maner which Adrian vſed with the men of warre.
 
-1. CHAP. XII. ¶Of the great liberalitie that Adrian vſed, and ſome cruelties that he committed.
+    _ CHAP. X. ¶Of the actes that Adrian did in Englande, Fraunce, and Spaine.
 
-1. CHAP. XIII. Of the lawes that Adrian made.
+    _ CHAP. XI. ¶Howe Adrian did paſſe into Aſia, and of the things that chaunced there.
 
-1. CHAP. XIIII. Of ſome of his gratious and pythie ſentences.
+    _ CHAP. XII. ¶Of the great liberalitie that Adrian vſed, and ſome cruelties that he committed.
 
-1. CHAP. XV. Of the thinges that he did woorthy prayſe, and ſome other things worthy diſpraiſe.
+    _ CHAP. XIII. Of the lawes that Adrian made.
 
-1. CHAP. XVI. Whome Adrian did adopt to ſucceede him in his Empire.
+    _ CHAP. XIIII. Of ſome of his gratious and pythie ſentences.
 
-1. CHAP. XVII. Howe and where the Emperour Adrian dyed.
+    _ CHAP. XV. Of the thinges that he did woorthy prayſe, and ſome other things worthy diſpraiſe.
 
-1. CHAP. I. ¶ Of the lineage and countrie of the Emperour Antoninus Pius.
+    _ CHAP. XVI. Whome Adrian did adopt to ſucceede him in his Empire.
 
-1. CHAP. II. ¶Of the inclination, proportion, and naturall faſhion of his bodie.
+    _ CHAP. XVII. Howe and where the Emperour Adrian dyed.
 
-1. CHAP. III. ¶The workes of pietie which he did, and the cauſe, why he was intituled Antoninus Pius.
+1. The life of the Emperour Antoninus Pius, compiled by Syr Anthonie of Gueuara, Biſhop of Mōdonnedo, Preacher, Chronicler, & Counſeler vnto Charles the fifte.
 
-1. CHAP. IIII. ¶Of the woordes that Adrian ſaide vnto the Senate, when he did adopt Antoninus Pius.
+    _ CHAP. I. ¶ Of the lineage and countrie of the Emperour Antoninus Pius.
 
-1. CHAP. V. ¶Of the offices that Antoninus helde before he was Emperour.
+    _ CHAP. II. ¶Of the inclination, proportion, and naturall faſhion of his bodie.
 
-1. CHAP. VI. ¶Howe he helde all prouinces in peace, not by armes, but with letters.
+    _ CHAP. III. ¶The workes of pietie which he did, and the cauſe, why he was intituled Antoninus Pius.
 
-1. CHAP. II. ¶Howe he did viſite the officers of his common wealth, and the reformation of his houſe.
+    _ CHAP. IIII. ¶Of the woordes that Adrian ſaide vnto the Senate, when he did adopt Antoninus Pius.
 
-1. CHAP. VIII. Of certaine notable buildings erected by Antoninus.
+    _ CHAP. V. ¶Of the offices that Antoninus helde before he was Emperour.
 
-1. CHAP. IX. Of certaine lawes which the Emperour Antoninus Pius made.
+    _ CHAP. VI. ¶Howe he helde all prouinces in peace, not by armes, but with letters.
 
-1. CHAP. XI. Of the prodigious and monſtruous things that happened during the Empire of Antoninus.
+    _ CHAP. II. ¶Howe he did viſite the officers of his common wealth, and the reformation of his houſe.
 
-1. CHAP. XI. Of the warres that happened in the reigne of Antoninus Pius, and other his actes.
+    _ CHAP. VIII. Of certaine notable buildings erected by Antoninus.
 
-1. CHAP. XII. ¶ Of the ſucceſſion of the Empire, and the occaſion of his death.
+    _ CHAP. IX. Of certaine lawes which the Emperour Antoninus Pius made.
 
-1. CHAP. I. ¶ Of the byrth of the Emperour Commodus,
+    _ CHAP. XI. Of the prodigious and monſtruous things that happened during the Empire of Antoninus.
 
-1. CHAP. II. Of the honourable titles, giuen vnto the Emperour Commodus, in time of his youth.
+    _ CHAP. XI. Of the warres that happened in the reigne of Antoninus Pius, and other his actes.
 
-1. CHAP. III. ¶Howe Commodus did inherite the Empire of his father Marcus Aurelius, and of a certeine ſpeech which he vſed vnto the Senate.
+    _ CHAP. XII. ¶ Of the ſucceſſion of the Empire, and the occaſion of his death.
 
-1. CHAP. IIII. ¶Of a certeine famous and notable ſpeeche, vſed by one of his tutours: for that he would leaue the warre of Panonia vnfiniſhed.
+1. The life of the Emperour Commodus, the ſonne of good Marcus Aurelius: compiled by Syr Anthonie of Gueuara, byſhop of Mondonnedo, preacher, Chronicler, and Coūſeler vnto the Emperour Charles the fift.
 
-1. CHAP. V. How Commodus left the warres of Panonia to go to Rome.
+    _ CHAP. I. ¶ Of the byrth of the Emperour Commodus,
 
-1. CHAP. VI. Howe Commodus was cruell, and of the cruelties which he vſed.
+    _ CHAP. II. Of the honourable titles, giuen vnto the Emperour Commodus, in time of his youth.
 
-1. CHAP. VII. Of a certaine conſpiracie attempted againſt Cōmodus, and of Perennius his moſt fauoured counſellour.
+    _ CHAP. III. ¶Howe Commodus did inherite the Empire of his father Marcus Aurelius, and of a certeine ſpeech which he vſed vnto the Senate.
 
-1. CHAP. VIII. Of a conſpiracie that Perennius wrought againſt the Emperour Commodus.
+    _ CHAP. IIII. ¶Of a certeine famous and notable ſpeeche, vſed by one of his tutours: for that he would leaue the warre of Panonia vnfiniſhed.
 
-1. CHAP. IX. ¶Of the tyrant Maternus, and of his treaſon againſt Commodus.
+    _ CHAP. V. How Commodus left the warres of Panonia to go to Rome.
 
-1. CHAP. X. ¶ Of the inexpected death of Cleander, a fauoured and moſt priuate ſeruant vnto Commodus.
+    _ CHAP. VI. Howe Commodus was cruell, and of the cruelties which he vſed.
 
-1. CHAP. XI. ¶The report of a fire which deſcended from heauen, and burnt in Rome the temple of peace.
+    _ CHAP. VII. Of a certaine conſpiracie attempted againſt Cōmodus, and of Perennius his moſt fauoured counſellour.
 
-1. CHAP. XII. ¶ Of many cruelties, and not a fewe phantaſtical practiſes of Commodus.
+    _ CHAP. VIII. Of a conſpiracie that Perennius wrought againſt the Emperour Commodus.
 
-1. CHAP. XIII. ¶ A diſcourſe of the prouinces that rebelled in his reigne, and the prodigies of his death.
+    _ CHAP. IX. ¶Of the tyrant Maternus, and of his treaſon againſt Commodus.
 
-1. CHAP. XIIII. ¶ Howe Commodus was ſlaine by the deuice and counſel of his Courtiſane Martia.
+    _ CHAP. X. ¶ Of the inexpected death of Cleander, a fauoured and moſt priuate ſeruant vnto Commodus.
 
-1. CHAP. I. ¶Of the linage and countrie of the Emperour Pertinax.
+    _ CHAP. XI. ¶The report of a fire which deſcended from heauen, and burnt in Rome the temple of peace.
 
-1. CHAP. II. ¶Of the variable fortune that Pertinax did paſſe before he obteined the Empire.
+    _ CHAP. XII. ¶ Of many cruelties, and not a fewe phantaſtical practiſes of Commodus.
 
-1. CHAP. III. ¶What was ſaide, and what he aunſwered vnto thoſe perſons, that offered him the Empire.
+    _ CHAP. XIII. ¶ A diſcourſe of the prouinces that rebelled in his reigne, and the prodigies of his death.
 
-1. CHAP. IIII. ¶ A certeine notable ſpeach vttered by Letus vnto the armie, in the fauour of Pertinax.
+    _ CHAP. XIIII. ¶ Howe Commodus was ſlaine by the deuice and counſel of his Courtiſane Martia.
 
-1. CHAP. V. ¶ Of an Oration made by Pertinax in the Senate immediatly after he was elected Emperour.
+1. The life of the Emperour Pertinax, compiled by ſyr Anthonie of Gueuara, Biſhop of Mondonnedo, preacher, chronicler, & counſeller vnto the Emperour Charles the fifth.
 
-1. CHAP. VI. ¶ Of many thinges which he did after he was Emperour.
+    _ CHAP. I. ¶Of the linage and countrie of the Emperour Pertinax.
 
-1. CHAP. VII. ¶ Of many thinges which he did ordeine and reforme in the common wealth.
+    _ CHAP. II. ¶Of the variable fortune that Pertinax did paſſe before he obteined the Empire.
 
-1. CHAP. VIII. ¶Of certeine vices wherewith he was infected, and of the prodigies of his death.
+    _ CHAP. III. ¶What was ſaide, and what he aunſwered vnto thoſe perſons, that offered him the Empire.
 
-1. CHAP. IX. Of the occaſion that the Pretorians tooke to murther him.
+    _ CHAP. IIII. ¶ A certeine notable ſpeach vttered by Letus vnto the armie, in the fauour of Pertinax.
 
-1. CHAP. X. Of a notable ſpeach that the Emperour Pertinax vſed, when his ſouldiours came to kill him.
+    _ CHAP. V. ¶ Of an Oration made by Pertinax in the Senate immediatly after he was elected Emperour.
 
-1. CHAP. I. Of the life, linage, and countrie of the Emperour Iulianus.
+    _ CHAP. VI. ¶ Of many thinges which he did after he was Emperour.
 
-1. CHAP. II. Howe the Empire of Rome was ſet to ſale, and alſo ſoulde by proclamation.
+    _ CHAP. VII. ¶ Of many thinges which he did ordeine and reforme in the common wealth.
 
-1. CHAP. III. Of the great and mortall hatred which the Romaines did beare vnto Iulianus, for buying the Empire.
+    _ CHAP. VIII. ¶Of certeine vices wherewith he was infected, and of the prodigies of his death.
 
-1. CHAP. IIII. ¶Of two Romaine Capteines named Seuerus and Peſſenius that rebelled againſt the Emperour Iulianus.
+    _ CHAP. IX. Of the occaſion that the Pretorians tooke to murther him.
 
-1. CHAP. V. ¶Howe by the commaundement of the Senate, the Emperour Iulianus was ſlaine.
+    _ CHAP. X. Of a notable ſpeach that the Emperour Pertinax vſed, when his ſouldiours came to kill him.
 
-1. CHAP. I. ¶Of the linage and countrie of the Emperour Seuerus.
+1. The life of the Emperour Iulianus, that bought the Empire, compiled by ſyr Anthonie of Gueuara, Biſhop of Mondonnedo, preacher, chronicler, & counſeller vnto the Emperour Charles the fifte.
 
-1. CHAP. II. ¶ Of the offices which Seuerus held in the Empire, before he was Emperour.
+    _ CHAP. I. Of the life, linage, and countrie of the Emperour Iulianus.
 
-1. CHAP. III. ¶ How the Pretorians did electe him Emperour.
+    _ CHAP. II. Howe the Empire of Rome was ſet to ſale, and alſo ſoulde by proclamation.
 
-1. CHAP. IIII. ¶How he reuenged the death of the good Emperour Pertinax.
+    _ CHAP. III. Of the great and mortall hatred which the Romaines did beare vnto Iulianus, for buying the Empire.
 
-1. CHAP. V. ¶Of thinges that he did in Rome, preſently after he was Emperour.
+    _ CHAP. IIII. ¶Of two Romaine Capteines named Seuerus and Peſſenius that rebelled againſt the Emperour Iulianus.
 
-1. CHAP. VI. ¶Howe the Emperour Seuerus paſſed into Aſia againſt capteine Peſſenius that rebelled againſt him.
+    _ CHAP. V. ¶Howe by the commaundement of the Senate, the Emperour Iulianus was ſlaine.
 
-1. CHAP. VII. ¶Of the warres that paſſed betwixt Peſſenius and Seuerus in Aſia.
+1. The life of the Emperour Seuerus, compiled by ſyr Anthonie of Gueuara, biſhop of Mondonnedo, preacher, chronicler, and counſeller, vnto the Emperour Charles the fift.
 
-1. CHAP. VIII. Of a cruell and furious battell, betwixt Peſſenius and Seuerus, wherein Peſſenius was ſlaine.
+    _ CHAP. I. ¶Of the linage and countrie of the Emperour Seuerus.
 
-1. CHAP. IX. Of the Conſul Albinius, and howe he rebelled againſt Seuerus being in Englande.
+    _ CHAP. II. ¶ Of the offices which Seuerus held in the Empire, before he was Emperour.
 
-1. CHAP. X. Of a famous ſpeach that Seuerus vttered vnto his armies, to bringe them in hatred with his 〈◊〉 Albinius.
+    _ CHAP. III. ¶ How the Pretorians did electe him Emperour.
 
-1. CHAP. XI. Howe Seuerus departed from Aſia to Fraunce, and fought with Albinius and ſlewe him.
+    _ CHAP. IIII. ¶How he reuenged the death of the good Emperour Pertinax.
 
-1. CHAP. XII. ¶Howe after the death of Albinius, Seuerus returned to Rome, and there ſlewe many.
+    _ CHAP. V. ¶Of thinges that he did in Rome, preſently after he was Emperour.
 
-1. CHAP. XIII. ¶Howe Seuerus returned into Aſia, and conquered many prouinces.
+    _ CHAP. VI. ¶Howe the Emperour Seuerus paſſed into Aſia againſt capteine Peſſenius that rebelled againſt him.
 
-1. CHAP. XIIII. ¶ Of Seuerus his ſonnes, and of their euill inclination.
+    _ CHAP. VII. ¶Of the warres that paſſed betwixt Peſſenius and Seuerus in Aſia.
 
-1. CHAP. XV. ¶Of a fauoured ſeruaunt of Seuerus named Plautianus.
+    _ CHAP. VIII. Of a cruell and furious battell, betwixt Peſſenius and Seuerus, wherein Peſſenius was ſlaine.
 
-1. CHAP. XVI. ¶Of a certaine treaſon that Plautianus had ordeined againſt Seuerus, and how it was diſcouered.
+    _ CHAP. IX. Of the Conſul Albinius, and howe he rebelled againſt Seuerus being in Englande.
 
-1. CHAP. XVII. ¶ Of the particular vices and vertues of Seuerus.
+    _ CHAP. X. Of a famous ſpeach that Seuerus vttered vnto his armies, to bringe them in hatred with his 〈◊〉 Albinius.
 
-1. CHAP. XVIII. ¶ How Seuerus paſſed into great Britaine, where he died.
+    _ CHAP. XI. Howe Seuerus departed from Aſia to Fraunce, and fought with Albinius and ſlewe him.
 
-1. CHAP. I. ¶Howe Baſsianus and his brother Geta did inherite the Empire of their father Seuerus.
+    _ CHAP. XII. ¶Howe after the death of Albinius, Seuerus returned to Rome, and there ſlewe many.
 
-1. CHAP. II. ¶Howe in Rome they burie their Emperours, and of greate ceremonies which there they vſed.
+    _ CHAP. XIII. ¶Howe Seuerus returned into Aſia, and conquered many prouinces.
 
-1. CHAP. IIII. ¶Of the mortall hatred betwixt Baſsianus and Geta his brother.
+    _ CHAP. XIIII. ¶ Of Seuerus his ſonnes, and of their euill inclination.
 
-1. CHAP. IIII. ¶Of an excellent ſpeache vttered by the mother vnto her ſonnes.
+    _ CHAP. XV. ¶Of a fauoured ſeruaunt of Seuerus named Plautianus.
 
-1. CHAP. V. ¶Howe Baſsianus, to obteine the Empire vnto him ſelfe, ſlewe his brother in his mothers armes.
+    _ CHAP. XVI. ¶Of a certaine treaſon that Plautianus had ordeined againſt Seuerus, and how it was diſcouered.
 
-1. CHAP. VI. ¶ Of a certaine ſpeach vſed of Baſſianus vnto the Senate, excuſing himſelfe of the death of his brother Geta.
+    _ CHAP. XVII. ¶ Of the particular vices and vertues of Seuerus.
 
-1. CHAP. VII. ¶Of the great crueltie of Baſſianus, and of ſuch as he commaunded to be ſlaine.
+    _ CHAP. XVIII. ¶ How Seuerus paſſed into great Britaine, where he died.
 
-1. CHAP. VIII. Of the prouinces whiche Baſſianus did trauell, and the thinges which he did therein.
+1. The life of the Emperour Baſsianus, ſonne vnto Seuerus, compiled by ſyr Anthonie of Gueuara, Biſhop of Mondonnedo, preacher, chronicler, and counſeller vnto the Emperour Charles the fifte.
 
-1. CHAP. IX. Of an horrible crueltie that Baſſianus committed in Alexandria.
+    _ CHAP. I. ¶Howe Baſsianus and his brother Geta did inherite the Empire of their father Seuerus.
 
-1. CHAP. X. Of a letter which Baſsianus did write vnto the kinge of Parthians to haue his daughter in marriage.
+    _ CHAP. II. ¶Howe in Rome they burie their Emperours, and of greate ceremonies which there they vſed.
 
-1. CHAP. XI. ¶Of another ſolemne letter, wherein the king of the Parthians aunſwered Baſsianus.
+    _ CHAP. IIII. ¶Of the mortall hatred betwixt Baſsianus and Geta his brother.
 
-1. CHAP. XII. Howe Baſsianus committed a greate treaſon againſt the Parthians.
+    _ CHAP. IIII. ¶Of an excellent ſpeache vttered by the mother vnto her ſonnes.
 
-1. CHAP. XIIII. How Baſsianus was ſlaine by the commaundemente of his priuate captaine Macrinus.
+    _ CHAP. V. ¶Howe Baſsianus, to obteine the Empire vnto him ſelfe, ſlewe his brother in his mothers armes.
 
-1. CHAP. XIIII. ¶How Macrinus excuſing himſelfe of the death of Baſſianus, did aduaunce himſelfe with the Empire.
+    _ CHAP. VI. ¶ Of a certaine ſpeach vſed of Baſſianus vnto the Senate, excuſing himſelfe of the death of his brother Geta.
 
-1. CHAP. I. ¶Of the linage and nouriture of the Emperour Heliogabalus.
+    _ CHAP. VII. ¶Of the great crueltie of Baſſianus, and of ſuch as he commaunded to be ſlaine.
 
-1. CHAP. II. ¶Howe capteine Macrinus did exalt him ſelfe with the Empire, after the death of Baſsianus.
+    _ CHAP. VIII. Of the prouinces whiche Baſſianus did trauell, and the thinges which he did therein.
 
-1. CHAP. III. ¶Howe the great matrone Meſia bought the Empire for her nephue Heliogabalus.
+    _ CHAP. IX. Of an horrible crueltie that Baſſianus committed in Alexandria.
 
-1. CHAP. IIII. ¶Howe Macrinus did write a letter vnto the renowmed Meſia, after he vnderſtoode his depriuation of the Empire.
+    _ CHAP. X. Of a letter which Baſsianus did write vnto the kinge of Parthians to haue his daughter in marriage.
 
-1. CHAP. V. Of a letter written by the great matrone Meſia vnto the tyrant Macrinus.
+    _ CHAP. XI. ¶Of another ſolemne letter, wherein the king of the Parthians aunſwered Baſsianus.
 
-1. CHAP. VI. ¶Howe the tyraunt Macrinus was ſlaine in battell.
+    _ CHAP. XII. Howe Baſsianus committed a greate treaſon againſt the Parthians.
 
-1. CHAP. VII. ¶Of a notable letter written by the matrone Meſia, vnto the Senate of Rome, crauing the confirmation of the Empire vnto Heliogabalus her nephue.
+    _ CHAP. XIIII. How Baſsianus was ſlaine by the commaundemente of his priuate captaine Macrinus.
 
-1. CHAP. VIII. ¶How the Romane Senate did allow the election of Heliogabalus, & of the preſent apparance of his wickednes.
+    _ CHAP. XIIII. ¶How Macrinus excuſing himſelfe of the death of Baſſianus, did aduaunce himſelfe with the Empire.
 
-1. CHAP. IX. Of manie vices that were conteined in the Emperour Heliogabalus.
+1. The life of the Emperour Heliogabalus, compiled by ſir Anthonie of Gueuara, Biſhop of Mondonnedo, preacher, chronicler, and counſeller vnto the Emperour Charles the fifte.
 
-1. CHAP. X. ¶Of a letter written by the great matrone Meſia vnto her nephue the Emperour Heliogabalus.
+    _ CHAP. I. ¶Of the linage and nouriture of the Emperour Heliogabalus.
 
-1. CHAP. XI. ¶Of certeine lawes which the Emperour Heliogabalus made in Rome.
+    _ CHAP. II. ¶Howe capteine Macrinus did exalt him ſelfe with the Empire, after the death of Baſsianus.
 
-1. CHAP. XII. ¶Howe Heliogabalus was thrice married, and of his marrying of the Gods together.
+    _ CHAP. III. ¶Howe the great matrone Meſia bought the Empire for her nephue Heliogabalus.
 
-1. CHAP. XIII. Howe Heliogabalus ſolde offices, and practiſed manie vanities.
+    _ CHAP. IIII. ¶Howe Macrinus did write a letter vnto the renowmed Meſia, after he vnderſtoode his depriuation of the Empire.
 
-1. CHAP. XIIII. ¶Of the ſhamefull death of the Emperour Heliogabalus.
+    _ CHAP. V. Of a letter written by the great matrone Meſia vnto the tyrant Macrinus.
 
-1. CHAP. I. ¶Of the nouriture and naturall countrie of the Emperour Alexander Seuerus.
+    _ CHAP. VI. ¶Howe the tyraunt Macrinus was ſlaine in battell.
 
-1. CHAP. II. ¶ Howe Alexander was aduaunced vnto the Empire, and of his laudable manners.
+    _ CHAP. VII. ¶Of a notable letter written by the matrone Meſia, vnto the Senate of Rome, crauing the confirmation of the Empire vnto Heliogabalus her nephue.
 
-1. CHAP. III. ¶ How Alexander being inueſted with the Empire, preſently did viſite and reforme his common wealth.
+    _ CHAP. VIII. ¶How the Romane Senate did allow the election of Heliogabalus, & of the preſent apparance of his wickednes.
 
-1. CHAP. IIII. ¶Of the milde conditions of Alexander, and of his gratefull conuerſation.
+    _ CHAP. IX. Of manie vices that were conteined in the Emperour Heliogabalus.
 
-1. CHAP. V. ¶Of his zeale of iuſtice and other commendable actes, as well touching his perſon, as his common wealth.
+    _ CHAP. X. ¶Of a letter written by the great matrone Meſia vnto her nephue the Emperour Heliogabalus.
 
-1. CHAP. VI. ¶Howe warre was offered in Aſia vnto Alexander, and what was ſaide vnto his Ambaſſadours.
+    _ CHAP. XI. ¶Of certeine lawes which the Emperour Heliogabalus made in Rome.
 
-1. CHAP. VII. ¶Of a diſcreete ſpeach vſed by Alexander vnto his men of warre.
+    _ CHAP. XII. ¶Howe Heliogabalus was thrice married, and of his marrying of the Gods together.
 
-1. CHAP. VIII. ¶ Howe the Romanes were ouercome of the Perſians.
+    _ CHAP. XIII. Howe Heliogabalus ſolde offices, and practiſed manie vanities.
 
-1. CHAP. X. ¶Of a ſolemne Oration made by Alexander vnto his men of warre.
+    _ CHAP. XIIII. ¶Of the ſhamefull death of the Emperour Heliogabalus.
 
-1. CHAP. XI. ¶Of the victorie that Alexander obteined againſt the Perſians, and of his triumph, as ſome writers do report.
+1. The life of the good Emperour Alexāder Seuerus, ſonne of the good matrone Manea, compiled by Syr Anthonie of Gueuara, biſhop of Mondonnedo, preacher, chronicler and counſellour, vnto the Emperour Charles the fifte.
 
-1. CHAP. XII. Of thinges whiche he did in Rome, and howe the tyrant Maximius did kill him in Britaine.
+    _ CHAP. I. ¶Of the nouriture and naturall countrie of the Emperour Alexander Seuerus.
+
+    _ CHAP. II. ¶ Howe Alexander was aduaunced vnto the Empire, and of his laudable manners.
+
+    _ CHAP. III. ¶ How Alexander being inueſted with the Empire, preſently did viſite and reforme his common wealth.
+
+    _ CHAP. IIII. ¶Of the milde conditions of Alexander, and of his gratefull conuerſation.
+
+    _ CHAP. V. ¶Of his zeale of iuſtice and other commendable actes, as well touching his perſon, as his common wealth.
+
+    _ CHAP. VI. ¶Howe warre was offered in Aſia vnto Alexander, and what was ſaide vnto his Ambaſſadours.
+
+    _ CHAP. VII. ¶Of a diſcreete ſpeach vſed by Alexander vnto his men of warre.
+
+    _ CHAP. VIII. ¶ Howe the Romanes were ouercome of the Perſians.
+
+    _ CHAP. X. ¶Of a ſolemne Oration made by Alexander vnto his men of warre.
+
+    _ CHAP. XI. ¶Of the victorie that Alexander obteined againſt the Perſians, and of his triumph, as ſome writers do report.
+
+    _ CHAP. XII. Of thinges whiche he did in Rome, and howe the tyrant Maximius did kill him in Britaine.
 
 #####Back#####
 
-1. The life of the Emperour Traiane. Pag. 13.
+1. Errours eſcaped.
 
-1. The life of the Emperour Adrian. Pag. 71.
+1. ¶A generall Table, conteyning the titles or arguments of euery Chapter throughout the bodie of this whole booke. (⸫)
 
-1. The life of the Emperour Antoninus Pius. Pag. 118.
+    _ The life of the Emperour Traiane. Pag. 13.
 
-1. The life of the Emperour Commodus. Pag. 149.
+    _ The life of the Emperour Adrian. Pag. 71.
 
-1. The life of the Emperour Pertinax. Pag. 240.
+    _ The life of the Emperour Antoninus Pius. Pag. 118.
 
-1. The life of the Emperour Iulianus. Pag. 246.
+    _ The life of the Emperour Commodus. Pag. 149.
 
-1. The life of the Emperour Seuerus. Pag. 266.
+    _ The life of the Emperour Pertinax. Pag. 240.
 
-1. The life of the Emperour Baſsianus. Pag. .230.
+    _ The life of the Emperour Iulianus. Pag. 246.
 
-1. The life of the Emperour Heliogabalus. Pag. 374.
+    _ The life of the Emperour Seuerus. Pag. 266.
 
-1. The life of the Emperour Alexander Seuerus. Pag. 433.
+    _ The life of the Emperour Baſsianus. Pag. .230.
 
+    _ The life of the Emperour Heliogabalus. Pag. 374.
+
+    _ The life of the Emperour Alexander Seuerus. Pag. 433.
+Jmprinted at London for Ralphe Newberrie, dwelling in Fleeteſtreate a little aboue the Conduite. (⸫)
 **Types of content**
 
   * There are 2 **verse** lines!
